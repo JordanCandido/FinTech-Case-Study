@@ -41,7 +41,7 @@
 
 ## Recommendations
 
-* If i were the company I would focus on bringing the product outside of the US to increase possible customer acquisition. I would also focus on products that target simple ways of investing for example, automatic investment settings along with automatic deposits. I would also try to bring in cryptocurrencies where diversification and pie creation can also be extremely beneficial.
+* If I were the company I would focus on bringing the product outside of the US to increase possible customer acquisition. I would also focus on products that target simple ways of investing for example, automatic investment settings along with automatic deposits. I would also try to bring in cryptocurrencies where diversification and pie creation can also be extremely beneficial.
 
 * These services would directly target the company's customer of choice that focuses on investors looking for simple and automated ways of investing while still having control and structure in their investments.
 
